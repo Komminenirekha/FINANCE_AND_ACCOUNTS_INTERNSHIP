@@ -41,5 +41,5 @@ I completed an **8-month Finance and Accounts Internship (24 Aug 2024 – 25 Apr
 ## 📫 Contact
 **Rekha Chowdary Kommineni**  
 - **Phone:** 7901266761  
-- **Email:** rekhachowdarykommineni@gmail.com  
+- **Email:** rekha.kchowdary@gmail.com    
 - **Location:** Mangalam, Tirupati – 517507
